@@ -5,3 +5,4 @@
 
 ![image](https://github.com/CesarAugusto00/CesarAugusto00-ECE444-F2023-Assignment1/assets/144982985/56ee481f-306f-45c4-a511-4f26d26145a0)
 
+![image](https://github.com/CesarAugusto00/CesarAugusto00-ECE444-F2023-Assignment1/assets/144982985/1bcf8909-e4a4-4ede-ac67-9d207e15e10a)
